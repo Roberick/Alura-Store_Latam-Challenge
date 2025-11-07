@@ -84,7 +84,7 @@ El capital generado por la venta de este activo de alto valor podría ser reinve
 
 👤 Autor
 
-Nombre: [Roberick Peña Jerez]
+Nombre: Roberick Peña Jerez
 
 LinkedIn: https://www.linkedin.com/in/roberick-pena-jerez-b9783048/
 
